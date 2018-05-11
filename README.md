@@ -1,4 +1,4 @@
-latest and release this Cooking Madness Game Cheat and Hack 2018 Unlimited Coins and Diamonds work on all Android and iOS devices. You can finally have fun with this new Cooking Madness Hack because starting from today you can use it. We have seen that the demand for this one was pretty high. This is why we share with you
+<h1>latest and release this Cooking Madness Game Cheat and Hack 2018</h1> Unlimited Coins and Diamonds work on all Android and iOS devices. You can finally have fun with this new Cooking Madness Hack because starting from today you can use it. We have seen that the demand for this one was pretty high. This is why we share with you
 >>>>>>>>>>>>>>>>>>>>>>>>>>>>>
 
 Go here for Cooking Madness Hack :  https://www.instapaper.com/read/1050280602
